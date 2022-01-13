@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TehAnonCat
-- 👀 I’m interested in food and pets.
+- 👀 I’m interested in food and pats.
 - 🌱 I’m currently learning many things.
 - 💞️ I’m looking to collaborate on catnip heist.
 - 📫 How to reach me AnonCat#2170.
